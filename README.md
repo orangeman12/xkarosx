@@ -1,3 +1,1 @@
-Im @xkarosx and thats it
-Dont expect anything else
-Bye
+im an orange stop stalking me
